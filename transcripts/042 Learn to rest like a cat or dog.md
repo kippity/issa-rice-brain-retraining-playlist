@@ -1,0 +1,31 @@
+Source: https://youtu.be/FPFg4qiVmuo
+
+# Learn to rest like a cat or dog
+
+Section: Part 3: Practice: What you need to do to actually get better: Miscellaneous
+Issa's entry: Learn to rest like a cat or dog (James)
+YouTube title: The secret to healing. Health Recovery, 2023-11-17.
+
+So I wanted to do a quick little video about the secret that I use to help me recover from my years of horrific health, horrific social situation, horrific everything. You know, just recovering myself, you know, recovering my body, recovering everything. When I had my chronic illness, at the depths of hell, I had a little Cocker Spaniel friend. And at the time I was really worried that I was never going to get better.
+
+I'd just cycle things through my head all the time. Why am I sick? What could it be? Could it be the vaccine? I really reacted bad after that. Could it have been all the antibiotics I had, as it messed up my liver? Could it be, could it be the fact I wasn't breastfeeding? I'd just cycle for everything. And then I'd remember when I was bit by a tick, and I'd read these horror stories of people with Lyme disease, and I'd go, I felt like I was diagnosed with cancer. I'd just be so anxious.
+
+And I'd watch YouTube videos, and there'd be little microscopes looking at all the, the, the drip, I can't remember the, the, they're like corkscrew parasites from Lyme disease that spiral through cell walls and everything. I'd be looking at this and going, I'm fucked, there's just, there's no way I can come back from this. I'm, I'm watching stories of people that have antibiotics all the time and it never gets better, and I just panic. I'd be like, if it's Lyme's disease, what can I do? Realistically, there's nothing I could do. I think about all this.
+
+And then one day, I just turn around. And my cocker spaniel, he was just, the most I ever walked him was about five hours in a day. And after that five hours, we'd go home, we've had a rest for an hour. And I'd go, walkies. And he'd just jump up like that. Let's go. I'm ready to go. And it clicked that this dog had had ticks every week. After removing them all the time, it's just like it's nothing. So why isn't he debilitated like me? Why is he still able to function like a normal dog? There's nothing that affects him. Why is that?
+
+I started really pondering on that question. I was just like, so what's he doing that I'm not? And I started to really understand that whether it's a cat, whether it's a dog, when they're resting, they literally will curl up in a ball and close their eyes. They're not sleeping, they're just resting. Just peacefully resting. And at some point, it just clicked with me. I never do that. I never just do that.
+
+I'm always too anxious, I'm always too depressed, I'm always too sad, I'm always too stressed to do that. So I'm using instant gratification to pass the time, because I'm not content with where I'm at, I'm not happy with where I'm at, I'm really not okay. And when a cat curls up on the couch, they're not thinking of anything. They're just like, this is nice, that's it. I remember going, maybe there's something to that. Maybe if I trust my body's signals to me, I'll be like them one day.
+
+So when I felt really, really, really tired, I'd go, you know what, I'm going to go sit next to my dog and I'm just going to copy him. I'm going to copy my dog, and we'd sit on bed. I don't know if it's 11 o'clock in the morning, midday, whatever it is, just gonna rest there. Rest there for a few hours, do nothing, absolutely nothing. And sure enough, it really started to make a change for me. You know, other things were helping as well, but just going, hang on now, I'll just rest.
+
+I won't bombard my nervous system with World of Warcraft, Call of Duty, Counter-Strike, TV shows, Dexter, you know, all these things that are just telling my body that outside of this body is just mayhem. I'll just let my body rest. And it really paid off. And I just think there's a lot to learn from animals in a lot of ways. So yeah, that's, that's one of the key things I did in my recovery, and it really paid off for me.
+
+I really do believe that technology, we're complete guinea pigs to it. It's relatively new, and you have generations of children now growing up with this stuff all the time. Like, I, I go into four or five houses a day most of the time, and you just see kids just glued to it all. That you can tell they're just on it all the time. Get home from school, they're on it. Go to bed, they're on it. Before bed, wake up in the morning, I squeeze them in before school. And there's, there's a price to pay for that. The body is just not evolved or in a place that it can deal with all that stimulation and not have some, some downfall from it.
+
+So yeah, hopefully that helps you in some way, and I hope you're all doing all right and feeling like you're getting somewhere. Just, just be kind to yourself and try and be as content as you can be with the life you got right now, because things change so rapidly. And when I first started really dedicating myself to my recovery and trying to understand everything, I, I wouldn't have been believing that I'd be going for a run, you know, within a year, or feeling better about myself. I just thought I was starting yet another, another routine that might flop. But I really tried to be positive as I could every day, and uh, just gotta spread that message as much as I can.
+
+So I really thank you for your continued support and watching the channel and everything. I'm, I'm trying to get more exposure by getting on these other social media platforms. It's a, it's a, I think that's the saying, a catch-22. I really dislike social media. If I could have a job where I didn't have a phone and I didn't have, you know, to go on all these things, I'd prefer it, but I feel like it's necessary. You know, it's going to get so common now with even teenagers developing all these autoimmune diseases, and there's no one there to validate them or help them. Usually just ridiculed by GPs and parents and stuff. So it's just, it's a necessary evil, I think.
+
+So if you support me with that, now I'm happy to do it. So thanks for watching, guys, again. If you've got any things you'd like me to cover, I'll do it.
